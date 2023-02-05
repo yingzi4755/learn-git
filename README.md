@@ -1,1 +1,1 @@
-github study
+github studying
